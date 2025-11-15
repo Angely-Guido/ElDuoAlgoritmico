@@ -1,1 +1,1 @@
-# El-D-o-Algor-tmico-
+# El Duo Algoritmico
